@@ -17,6 +17,8 @@ screenshot of project
 
 ![Screenshot 2023-12-27 155113](https://github.com/nikhilhmane49/Partnerships/assets/137916068/6f876cfa-c703-44ee-bd30-efbef65d175b)
 
+![Screenshot 2023-12-27 155141](https://github.com/nikhilhmane49/Partnerships/assets/137916068/2e4974e0-1d57-43c3-9bfb-2da5f7eefff4)
+
 
 
 
